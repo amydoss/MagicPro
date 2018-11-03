@@ -11,4 +11,4 @@
 
 Если вам нравится это программное обеспечение, оставьте комментарий в iTunes, спасибо за вашу поддержку!
 
-you can use StaffordLaura1997266@yandex.ru
+Contact email: StaffordLaura1997266@yandex.ru
